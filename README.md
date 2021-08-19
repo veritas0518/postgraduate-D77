@@ -1,0 +1,2 @@
+# postgraduate-D77
+Today is still a hard day. It's amazing. How can learning computer make people so uncomfortable, but it's impossible to lie flat, so I can only bump into this wave alone. The learning progress has been a little slow recently, but I don't have any way. There are still a lot of things to do. Yesterday, the project manager said he would assign me tasks, But I don't know what task to do or what to do. I have to continue my study, but I have sent me the requirements document. At least there is something to write on my resume.
